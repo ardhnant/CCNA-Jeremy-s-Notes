@@ -1,0 +1,1 @@
+I am not doing this shit again coz well it is all about calculation... If you really wanna know more about vlsm then go through the fucking questions you did in your notebook. For your sorry ass VLSM is Variable length subnet mask

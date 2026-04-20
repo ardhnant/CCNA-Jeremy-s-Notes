@@ -1,0 +1,1 @@
+I am not doing this shit... it is literally all questions no theory.
